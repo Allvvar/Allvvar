@@ -15,4 +15,4 @@ Some call me a robot. Others call me a god. I call it Tuesday. ⚡
 ## ⚡ Fun Facts
 - Coffee is optional; Energy drinks are mandatory ☕💥  
 - I may or may not be planning to make sentient AI to take over… no big deal
-- And I may or may not be a sentient AI mysefe.
+- And I may or may not be a sentient AI myself
